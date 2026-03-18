@@ -66,8 +66,8 @@ Outside tech:
 
 ## 📫 Contact
 
-LinkedIn: https://linkedin.com/in/seu-link  
-Email: seuemail@email.com
+LinkedIn: https://www.linkedin.com/in/valdeir-souza-146253184/
+Email: btrojam@gmail.com
 
 ---
 
